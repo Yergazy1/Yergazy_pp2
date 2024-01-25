@@ -1,1 +1,0 @@
-# Yergazy_pp2
